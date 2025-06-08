@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Abubakr
 - 👀 I am a buisness owner and IT and Cybersecurity student!
-- 🌱 I’m currently in progression to getting my CompTIA Network + N10 - 009 Certification
+- 🌱 I currently have my CompTIA Network + N10 - 009, Competency in Networking, and IT Specialist in Cyber Security Certifications
 - 📫 My email is barakzaiabubakr@gmail.com and my LinkedIn is https://www.linkedin.com/in/abubakr-barakzai/
-- I am currently working on a EA (Electronic Arts) Junior Software Engineering Program!
+- I am currently working on a EA (Electronic Arts) Junior Software Engineering Program and scaling my personal buisness!
